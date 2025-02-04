@@ -8,7 +8,7 @@
 - Lately, I am learning **WEB -DEVELOPMENT
 - **
 
-- Ask me about **React.js, JavaScript and 🐞 Bug Bounty Hunter | 🛡BLUE CODER**
+- Ask me about **React.js, JavaScript and 🐞 Bug Bounty Hunter | BLUE CODER**
 
 - How to reach me **aishasaleem1308@gmail.com**
 
